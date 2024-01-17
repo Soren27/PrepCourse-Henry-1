@@ -1,2 +1,5 @@
 # PrepCourse-Henry-1
-Modulo 2 del PrepCourse de Henry
+El primer paso es el que cuenta
+
+
+por que ya tu samsung
